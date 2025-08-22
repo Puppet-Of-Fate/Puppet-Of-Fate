@@ -18,7 +18,7 @@ Vin you are lowkey like.a brother to me!! i will always carry you around on my s
 WILL!!
 Whereeee is will.. hmm!! IMSORRY BAD JOKE i think thats what i remember.. but anyways I LOVE MY SON!!! i love my son!!! youre always figuring out new names and pony styles that you like and i think that inspired me to start exploring myself/ourselves further. i do feel bad about my promise.. but hopefully one day i can fulfil it, even if the future doesnt look bright!! we will keep on pushing forward!!
 
-MARCY ^_^
+MAR ^_^
 Marcy wu amphibia you are so sillies and cool.. i miss playing dandys world with you!! i always loved your silly energy and i still treasure the haruka pony so dearly,, i wish he looked like that in milgram canon sometimes..!! you inspired me to be really unique with my ponies alongside will as well! specifically highlighter mouths.. hehe!!
 
 VIC :D
