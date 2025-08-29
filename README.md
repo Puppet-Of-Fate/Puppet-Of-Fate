@@ -40,4 +40,4 @@ Luna dreemurr... it seems we reunite at least.. /j i love your energy so much . 
 
 More people to be added.. I'm just tired.
 
-![](https://komarev.com/ghpvc/?username=Puppet-Of-Fate&color=purple)
+![](https://komarev.com/ghpvc/?username=Puppet-Of-Fate&color=blueviolet)
