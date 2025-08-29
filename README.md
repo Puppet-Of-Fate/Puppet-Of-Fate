@@ -37,3 +37,7 @@ You're soo so chill but passionate and are literally just a Chill Guy like. your
 
 LUNA !!!
 Luna dreemurr... it seems we reunite at least.. /j i love your energy so much . if your energy was a character design when i think itd look like darumi amemiya.. I DONT KNOW WHY i think its the pretty colors and uniqueness of her creativity and expression. and i dont know why but its you in a way!! praying oyu dont relate to her too hard though.. scary OK? youre like a sibling to me and i will spin you and vin around like a blood separator!!
+
+More people to be added.. I'm just tired.
+
+![](https://komarev.com/ghpvc/?username=Puppet-Of-Fate&color=purple)
